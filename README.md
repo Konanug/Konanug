@@ -1,4 +1,4 @@
-Upper Canada College coping session every day
+UCC '26
 Alan
 
 <!---
